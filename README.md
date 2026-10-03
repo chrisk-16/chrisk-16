@@ -69,4 +69,4 @@ French (native) · English (professional, TOEIC 915/990)
 ## 📫 Contact
 
 - Email: kouachris06@gmail.com
-- LinkedIn: [your LinkedIn URL](#)
+- LinkedIn: www.linkedin.com/in/chris-koua-7a2058254
